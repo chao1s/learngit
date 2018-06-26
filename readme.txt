@@ -5,3 +5,4 @@ i don't konw
 so...just do something
 is ready
 a ha ? hei ?
+so is good ? i felling good
